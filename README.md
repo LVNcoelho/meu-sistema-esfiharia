@@ -55,4 +55,4 @@ Siga as instruções no terminal para interagir com o sistema.
 
 ## Contato
 
-Pâmela 91 - 8580-0931
+Pâmela 91 - 8580-0931 obs: é da minha própria esfiharia kk
